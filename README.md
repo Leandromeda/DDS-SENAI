@@ -12,7 +12,6 @@
 
 🔗 Dimensão 360º - [Inclusão e diversidade LGBTQIA+ na escola](https://github.com/user-attachments/files/16760634/06-Campanha-mensal-Dimensao-360--JUNHO--Diversidade-na-escola---APRESENTACOES.pdf)
 
-> [!IMPORTANT]
-> As apresentações dos _squads_ deverão ocorrer **sempre** após o intervalo do período da tarde; salvo exceções informadas pelo instrutor.
+> ATENÇÃO: As apresentações dos _squads_ deverão ocorrer **sempre** após o intervalo do período da tarde; salvo exceções informadas pelo instrutor.
 
 ### By Leandromeda🌹
