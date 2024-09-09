@@ -1,6 +1,10 @@
 # Diálogo Diário de Segurança (DDS) // SENAI Sorocaba
 
-![image](https://github.com/user-attachments/assets/d3a114d2-f931-4605-8558-2176113d568a)
+![image](https://github.com/user-attachments/assets/6279df58-633d-4cc9-92ef-d68c8ef39aab)
+
+## [2024] Setembro
+
+🔗 Dimensão 360º - [Setembro Amarelo: Mês de prevenção ao suicídio](https://we.tl/t-yLfNWTliMd)
 
 ## [2024] Agosto
 
