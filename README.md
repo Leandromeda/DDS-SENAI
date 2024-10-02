@@ -1,6 +1,6 @@
 # Diálogo Diário de Segurança (DDS) // SENAI Sorocaba
 
-![image](https://github.com/user-attachments/assets/6279df58-633d-4cc9-92ef-d68c8ef39aab)
+![image](https://github.com/user-attachments/assets/cf2f79b7-2f45-42f9-90f0-fbb2217ee653)
 
 ## [2024] Setembro
 
