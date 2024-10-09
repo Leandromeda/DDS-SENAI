@@ -4,7 +4,9 @@
 
 ## [2024] Outubro
 
-🔗 Outubro Rosa: [Mês de prevenção ao câncer de mama](https://github.com/user-attachments/assets/28a826ad-ca15-4a6b-86aa-a143b9120e8a)
+🔗 Dimensão 360º - Enfrentamento da violência escolar [EM BREVE...]
+
+🔗 Dimensão 360º - [Outubro Rosa: Mês de prevenção ao câncer de mama](https://github.com/user-attachments/assets/28a826ad-ca15-4a6b-86aa-a143b9120e8a)
 
 ## [2024] Setembro
 
