@@ -1,6 +1,10 @@
 # Diálogo Diário de Segurança (DDS) // SENAI Sorocaba
 
-![image](https://github.com/user-attachments/assets/cf2f79b7-2f45-42f9-90f0-fbb2217ee653)
+![image](https://github.com/user-attachments/assets/d6d12f26-7df7-4593-a7bc-1efd30784693)
+
+## [2024] Outubro
+
+🔗 Outubro Rosa: [Mês de prevenção ao câncer de mama](https://github.com/user-attachments/assets/28a826ad-ca15-4a6b-86aa-a143b9120e8a)
 
 ## [2024] Setembro
 
