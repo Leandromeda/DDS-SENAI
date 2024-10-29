@@ -4,7 +4,7 @@
 
 ## [2024] Outubro
 
-🔗 Dimensão 360º - Enfrentamento da violência escolar [EM BREVE...]
+🔗 Dimensão 360º - [Enfrentamento da violência escolar](https://github.com/user-attachments/files/17560189/Cartilha.-.Enfrentamento.da.Violencia.escolar.zip)
 
 🔗 Dimensão 360º - [Outubro Rosa: Mês de prevenção ao câncer de mama](https://github.com/user-attachments/assets/28a826ad-ca15-4a6b-86aa-a143b9120e8a)
 
